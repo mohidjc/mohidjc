@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [GitHub.com/mohidjc](GitHub.com/mohidjc)
 
-- 📫 How to reach me **mohidchauhdhry14@gmail.com**
+- 📫 How to reach me **mohidchauhdhry141@gmail.com**
 
 - ⚡ Fun fact **I am javelin thrower**
 
